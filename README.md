@@ -1,1 +1,1 @@
-# literatureforliving.com
+# equipmentforliving.com
